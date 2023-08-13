@@ -2,4 +2,4 @@
 
 - 💬 Ask me about **nothing**
 
-- 📫 How to reach me **pls don't**
+- 📫 How to reach me: @xtramcz on discord
